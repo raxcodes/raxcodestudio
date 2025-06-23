@@ -48,7 +48,7 @@ From sleek interfaces to immersive 3D experiences, I bring your wildest digital 
 
 Want to collaborate, build your startup’s next big thing, or bring your product to life?
 
-📬 **Let's Build Together:** [mailto:youremail@example.com](mailto:youremail@example.com)  
+📬 **Let's Build Together:** [mailto:youremail@example.com](mailto:raxcodestudio@gmail.com)  
 📸 **Instagram:** [@raxcodestudio](https://instagram.com/raxcodestudio)
 
 ---
